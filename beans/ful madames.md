@@ -1,6 +1,6 @@
 ## Ful Madames
 
-.5 lb pinto beans
+.5 lb cranberry beans
 
 cumin
 
