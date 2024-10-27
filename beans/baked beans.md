@@ -1,26 +1,28 @@
 ## Baked Beans
 
-.5 lb navy beans
 
-Salt 
+### Ingredients
+* .5 lb navy beans
 
-Molasas
+* Salt 
 
-Tablespoon sugar
+* Molasas
 
-Tablespoon mild sugar syrup
+* Tablespoon sugar
 
-8 slices bacon
+* 2 Tablespoon mild sugar syrup (agave, maple syrup, etc..) 
 
-Dried Onion
+* 8 slices bacon
 
-Garlic Powder
+* Dried Onion
 
-Barbeque Sauce
+* Garlic Powder
 
-1 pint tomatoe juice
+* Barbeque Sauce
 
-top with water
+* 1 pint tomatoe juice
+
+* top with water
 
 
 ----
