@@ -8,7 +8,7 @@ Ingredients
 - 1 ¾ cups milk
 - ¼ cup butter
 - 2 teaspoons pure vanilla extract
-- 1 large egg
+- 3 medium eggs
 
 Instructions
 
